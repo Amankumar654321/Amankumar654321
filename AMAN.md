@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Amankumar654321
+- 👋 Hi, I’m @Amankumar
 - 👀 I’m interested in Coding and Listening music.
 - 🌱 I’m currently learning Coding and DSA in MASAI SCHOOL
 - 💞️ I’m looking to collaborate on some of the projrct.
